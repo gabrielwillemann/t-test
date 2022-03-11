@@ -1,3 +1,3 @@
 # t-test
 
-[https://breezy-rabbit-28.loca.lt/viafoura/webview.html](https://breezy-rabbit-28.loca.lt/viafoura/webview.html)
+[https://thin-walrus-22.loca.lt/viafoura/webview.html](https://thin-walrus-22.loca.lt/viafoura/webview.html)
